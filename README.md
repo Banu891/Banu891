@@ -2,7 +2,7 @@
 
 I love teamwork as well as solo projects!
 
-
+<a href="https://www.flaticon.com/free-icons/www" title="www icons">Www icons created by Freepik - Flaticon</a>
 My contacts:
 
 
